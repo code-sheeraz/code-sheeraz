@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **arainsherry722@gmail.com**
 
-- ⚡ Fun fact **I'm always learnig**
+- ⚡ Fun fact **I'm always learning new things**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
